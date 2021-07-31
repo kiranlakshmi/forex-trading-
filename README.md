@@ -1,0 +1,2 @@
+# forex-trading-
+My name is kiran lakshmi,l was a trade agency and l study finance and economics business in schools. As a trade economics business l went to institution for trade business for more experience and more well known on trading bot currencies for all countries.     I have 4 years experience in trading bot,Forex and Cryptocurrency trading. I offer services on writing courses on forex and cryptocurrency trading as well as making videos on the topic.       l trade for real has an exceptional number 1 expert in all kinds of TRADES.
